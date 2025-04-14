@@ -8,9 +8,10 @@ The IPL 2025 clash between Punjab Kings (PBKS) and Sunrisers Hyderabad (SRH) at 
 
 On April 12, 2025, PBKS elected to bat first after captain Shreyas Iyer won the toss. The Kings posted a formidable 245/6, powered by Iyer’s blazing 82 off 36 balls and a late cameo from Marcus Stoinis. However, SRH’s openers, Abhishek Sharma and Travis Head, turned the game on its head with a 171-run partnership, leading to an 8-wicket victory with 9 balls to spare. This chase is now the second-highest in IPL history!
 
-<a href="https://www.profitableratecpm.com/ju7ri7bj?key=be344cd93ec57b2ac7da9be1034a7725" target="_blank" rel="noopener noreferrer">
-  <img src="/mnt/data/ee8454d81ae130327dfb3229de996855.gif" alt="Spin Wheel" width="300">
+<a href="https://www.profitableratecpm.com/ju7ri7bj?key=be344cd93ec57b2ac7da9be1034a7725" target="_blank">
+  <img src="https://github.com/user-attachments/assets/d7384883-d3d3-42a5-b419-7cb3a7460f58" alt="Clickable GIF" width="300">
 </a>
+
 
 
 Here’s a quick scorecard snapshot:
@@ -57,6 +58,11 @@ Despite their massive total, PBKS couldn’t defend 245. Here’s what went wron
 
 Historically, SRH have dominated PBKS, winning 16 of their 23 IPL encounters before this match. At Hyderabad’s Rajiv Gandhi Stadium, SRH’s record is even stronger, with 8 wins in 9 games against PBKS. This latest victory further cements SRH’s edge in the rivalry.
 
+<a href="https://www.profitableratecpm.com/ju7ri7bj?key=be344cd93ec57b2ac7da9be1034a7725" target="_blank">
+  <img src="https://github.com/user-attachments/assets/d7384883-d3d3-42a5-b419-7cb3a7460f58" alt="Clickable GIF" width="300">
+</a>
+
+
 | Stat | SRH | PBKS |
 |------|-----|------|
 | Matches Played | 24 | 24 |
@@ -82,6 +88,10 @@ The PBKS vs SRH clash wasn’t just about runs—it showcased T20 cricket’s ev
 > *Did you watch the match? Share your thoughts on Abhishek’s century in the comments below!*
 
 ## How to Stay Updated on IPL 2025
+<a href="https://www.profitableratecpm.com/ju7ri7bj?key=be344cd93ec57b2ac7da9be1034a7725" target="_blank">
+  <img src="https://github.com/user-attachments/assets/d7384883-d3d3-42a5-b419-7cb3a7460f58" alt="Clickable GIF" width="300">
+</a>
+
 
 Missed the live action? Catch highlights on [IPLT20.com](https://www.iplt20.com) or follow our [IPL 2025 coverage](https://www.profitableratecpm.com/ju7ri7bj?key=be344cd93ec57b2ac7da9be1034a7725) for match previews, player stats, and more. Want live scores? Download the official IPL app or check Star Sports for telecast details.
 
