@@ -13,6 +13,18 @@ On April 12, 2025, PBKS elected to bat first after captain Shreyas Iyer won the 
 </a>
 
 
+<!DOCTYPE html>
+<html>
+<head>
+<title>Open Link in New Tab</title>
+</head>
+<body>
+
+<a href="https://www.profitableratecpm.com/ju7ri7bj?key=be344cd93ec57b2ac7da9be1034a7725" target="_blank">Click here to open link in new tab</a>
+
+</body>
+</html>
+
 
 Here’s a quick scorecard snapshot:
 
