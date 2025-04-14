@@ -8,6 +8,11 @@ The IPL 2025 clash between Punjab Kings (PBKS) and Sunrisers Hyderabad (SRH) at 
 
 On April 12, 2025, PBKS elected to bat first after captain Shreyas Iyer won the toss. The Kings posted a formidable 245/6, powered by Iyer’s blazing 82 off 36 balls and a late cameo from Marcus Stoinis. However, SRH’s openers, Abhishek Sharma and Travis Head, turned the game on its head with a 171-run partnership, leading to an 8-wicket victory with 9 balls to spare. This chase is now the second-highest in IPL history!
 
+<a href="https://www.profitableratecpm.com/ju7ri7bj?key=be344cd93ec57b2ac7da9be1034a7725" target="_blank">
+  <img src="https://github.com/user-attachments/assets/d7384883-d3d3-42a5-b419-7cb3a7460f58" alt="Clickable GIF" width="300">
+</a>
+
+
 Here’s a quick scorecard snapshot:
 
 | Team | Score | Key Performers |
